@@ -1,4 +1,4 @@
-
+Elevate your synapse x executor experience with synapse x executor pro: auto-execute & inf-scripts, the executor that does it all! From auto-execute to inf-scripts, we provide the tools you need to succeed. Our commitment to quality and innovation ensures you're always one step ahead.
 
 
 ---
